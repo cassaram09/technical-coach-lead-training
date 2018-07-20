@@ -47,3 +47,7 @@ In addition to your existing role on AAQ, Study Groups, or 1:1 Support, you'll b
 ### Other meetings
 ### TCL meeting 
 
+
+[Technical Coach Lead Job](https://docs.google.com/document/d/1_M0vJ-Hdz8-zvLf-u_U4nlQc8S89r5DpJI4dumFx7MQ/edit)
+
+
